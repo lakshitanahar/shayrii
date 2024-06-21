@@ -1,5 +1,6 @@
 # shayrii
-PYAAR SE BOLI DIL SE SUNI ------- SHAYRI
+PYAAR SE BOLI DIL SE SUNI ------- SHAYRI![Screenshot 2024-06-15 190224](https://github.com/lakshitanahar/shayrii/assets/169900608/fdf75af0-74b3-4341-a1a4-47033583735c)
+
 
    1.In baarish ki bundo me,in pedo ki chaav me mene paya h tumhe pyaar Hai ya nahi ye toh mujhe bhi nahi Pata pr is muskuraate hue chehre ke piche mene paaya Hai tujhe...
    
@@ -24,6 +25,7 @@ PYAAR SE BOLI DIL SE SUNI ------- SHAYRI
  12.Me use bhulkr ke bhi bhul nhi paati, uski aakhein h baar baar mere saamne aajati,jo mujhe baar baar kehti rehti h ki me sirf tera hu aur tu Sirf Meri hum milenge na kabhi chahe kaynaat reh Jaye adhuri.......
 
 13.Nahi maangungi koi tofe tumse bss pyaar se gale laga Lena , tumhari hojaungi aakhir tk bs mujhe apna Lena ek baar.
+![Screenshot 2024-06-15 185124](https://github.com/lakshitanahar/shayrii/assets/169900608/605a5399-5883-48d5-9790-2b99af82233f)
 
  14.Tumhari saari galtiya nakar lungi, tumhe ek baar phir se seene se laga lungi, bas ek pal ke liye tum mere ho jao, tumhare kadmo me sari duniya utar lungi.
  
@@ -39,7 +41,8 @@ Me ruthungi toh mujhe manaoge kya,jitna pyaar tumhe diya utna de paoge kya,zorr 
 
 20.      Chahti hu tujhe itna ki tu soch bhi nhi sakta utna, ki thi mohabbat mene bhi Tune bhi bss fark sirf itna h meri badti chali gayi aur teri khatam hoti chali gayi 🫠
 
-21.       Koi tofa de saku toh chand ko tere hisse me de du,ter saku tu samundar tere liye paar krdu,doob saku toh teri aankhon me doob jao,likh  saku toh apne khoon se tera naam likdu…….
+21.       Koi tofa de saku toh chand ko tere hisse me de du,ter saku tu samundar tere liye paar krdu,doob saku toh teri aankhon me doob jao,likh  saku toh apne khoon se tera naam likdu…….![WhatsApp Image 2024-06-15 at 19 34 19_b599266d](https://github.com/lakshitanahar/shayrii/assets/169900608/0a61ad2a-725f-4282-bb18-62d940b0033e)
+.  
 
 23.        Akele rehne ki aadat si ho gayi,Kuch bolte bolte kahi  khone ki aadat si ho gayi hai,kya batao mere dil ka haal tumhe ,chalte chalte rone ki aadat si ho gayi!
 24.
@@ -71,7 +74,8 @@ Me ruthungi toh mujhe manaoge kya,jitna pyaar tumhe diya utna de paoge kya,zorr 
 50.    
 51.        Tere dil par boj lagne lagi hu ,tujhse koso durr hone lagi hu,ab koi aarzu nhi bachi h dil ki, khudse me hi roj rone lagi hu ,tere dil par boj lagne lagi hu....
 52.    
-53.        >usse kuch batane ki zarurat nhi mujhe uski aakhein dil ke raaz batati h mere dil gayal ho jata h ,dil mera gayal ho jata h jab uski aankhein mujhe apne pass bulati h>
+53.        >usse kuch batane ki zarurat nhi mujhe uski aakhein dil ke raaz batati h mere dil gayal ho jata h ,dil mera gayal ho jata h jab uski aankhein mujhe apne pass bulati h>![Screenshot 2024-06-15 184711](https://github.com/lakshitanahar/shayrii/assets/169900608/41e460d8-30c2-42de-ac91-e47f50ec7d4f)
+
 54.    
 55.   dil me ek lehar si uthi h abhi ki meri har aarzu me hai bss tu hi,dil mera behaal kr diya aisa kuch tune kamaal kr diya ,soya nhi jata raat me bhi aaj phir mene ye sawaal kr diya,dil mera behaal kr diya ek baar phir tujhe yaad kr liya<>
 56.   
@@ -99,8 +103,8 @@ I love nothing in you but just everything in you🥺
 
 70. Gero ki bahon me jb bhi tu sokar aata rato me,ek umeed si thi ki milega mujhe apna naam tere haathon me,Pagal thi mujhe lagta tha usse mohabbat hai mujhse,galti shayad meri hi thi aisi ulajh gyi thi uski bato me,jawani ke din the ajeeb sa surrur tha uski baho me,meri barbadi chipi h yaaro uske haathon me,vo apsaraye chuta rha jannat ka rasta samajkar aur me samajti rhi jannat ussi ki baho me        -reply version of jai singh poetry
 71. 
-72.  tujhe dekhti hu khwabo me,tujhse baat krti hu kitabo me,Koi kashish nahi bachi hai mere dil me ab,par tujhe dhundti hu chand sitaro me…
-73.  
+72.  tujhe dekhti hu khwabo me,tujhse baat krti hu kitabo me,Koi kashish nahi bachi hai mere dil me ab,par tujhe dhundti hu chand sitaro me…![WhatsApp Image 2024-06-16 at 18 27 39_34a89076](https://github.com/lakshitanahar/shayrii/assets/169900608/85102963-2da3-45b8-b4bb-61bab551ee36)
+
 49.tujhe khokar jo meri haalat hui hai,kya vo me she paungi?dil mera kehta hai me sb chodkar teri ho jao, iss jaha me sabse anokhi ho jao bss yuhi teri ho jao..
 
 50.in english we say-don’t believe in words but in hindi we say-की कह दो तुम होठो से कुछ भी तुम्हारी ऑखे तुम्हारे दिल के राज़ बताती है,की कह दो तुम होठो से कुछ भी तुम्हारी ऑखे तुम्हारे दिल के राज़ बताती है,मत करो तुम मुझे इतना बैचेन ,ये कयामत किस्मत मुझे बहुत सताती है।
