@@ -1,7 +1,7 @@
 # shayrii  
 copy link - https://lakshitanahar.github.io/shayrii/ ,   
 
-insstagram - https://www.instagram.com/poetrybylakshita?igsh=MXE5MGZmY2dqM3N2bQ==   ,
+insstagram -https://www.instagram.com/poetrybylakshita?utm_source=qr&igsh=MXE5MGZmY2dqM3N2bQ==   ,
                                                                                                 
 youtube link - https://www.youtube.com/@lakshitanahar4776
 
