@@ -1,4 +1,5 @@
-# shayrii
+# shayrii                                                                                                                                                                                                       copy link - https://lakshitanahar.github.io/shayrii/ ,   instagram link- https://www.instagram.com/poetrybylakshita?igsh=MXE5MGZmY2dqM3N2bQ==   ,youtube link - https://www.youtube.com/@lakshitanahar4776
+
 PYAAR SE BOLI DIL SE SUNI ------- SHAYRI![Screenshot 2024-06-15 190224](https://github.com/lakshitanahar/shayrii/assets/169900608/fdf75af0-74b3-4341-a1a4-47033583735c)
 
 
@@ -111,3 +112,4 @@ I love nothing in you but just everything in you🥺
 75. HE- ZINDAGI KESI CHAL RAHI HAI??
 ME-zindagi kuch iss kadar katt rahi hai na manzil ya aarzoo dikh rahi hai aur kitna tadpaoge mujhe ye umeed bss dheere dheere dhal rhi hai zindagi kuch iss kadar katt rhi hai! 
 
+ek aadat thi jo chuth gayi,ek dil tha ja toot gaya,ek khwaab tha jo kabhi pura na hua,ek safar tha jo adhoora reh gaya,ek khwaish jo bikhar gayi ' ki kamosh sa kar diya hai tune mere dil ko ab aawaz bhi aasuo se nikalti hai ,aur tabah bhi teri yadein krti hai,aashayein bhi mera dil jagata hai aur deewana teri purani batein kr deti h ab kitna tadpoge tum bhi jaanam kambakt ye fana teri aankhein kr deti h
