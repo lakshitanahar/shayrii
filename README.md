@@ -1,5 +1,4 @@
-# shayrii  
-copy link - https://lakshitanahar.github.io/shayrii/ ,   
+# shayrii             copy link - https://lakshitanahar.github.io/shayrii/ ,   
 
 insstagram -https://www.instagram.com/poetrybylakshita?utm_source=qr&igsh=MXE5MGZmY2dqM3N2bQ==   ,
                                                                                                 
@@ -116,9 +115,9 @@ I love nothing in you but just everything in you🥺
 49.tujhe khokar jo meri haalat hui hai,kya vo me she paungi?dil mera kehta hai me sb chodkar teri ho jao, iss jaha me sabse anokhi ho jao bss yuhi teri ho jao..💔❤️‍🩹
 
 50.in english we say-don’t believe in words but in hindi we say-की कह दो तुम होठो से कुछ भी तुम्हारी ऑखे तुम्हारे दिल के राज़ बताती है,की कह दो तुम होठो से कुछ भी तुम्हारी ऑखे तुम्हारे दिल के राज़ बताती है,मत करो तुम मुझे इतना बैचेन ,ये कयामत किस्मत मुझे बहुत सताती है।👀
-75. HE- ZINDAGI KESI CHAL RAHI HAI??
+51.. HE- ZINDAGI KESI CHAL RAHI HAI??
 ME-zindagi kuch iss kadar katt rahi hai na manzil ya aarzoo dikh rahi hai aur kitna tadpaoge mujhe ye umeed bss dheere dheere dhal rhi hai zindagi kuch iss kadar katt rhi hai! 😊
 
-ek aadat thi jo chuth gayi,ek dil tha ja toot gaya,ek khwaab tha jo kabhi pura na hua,ek safar tha jo adhoora reh gaya,ek khwaish jo bikhar gayi ' ki kamosh sa kar diya hai tune mere dil ko ab aawaz bhi aasuo se nikalti hai ,aur tabah bhi teri yadein krti hai,aashayein bhi mera dil jagata hai aur deewana teri purani batein kr deti h ab kitna tadpoge tum bhi jaanam kambakt ye fana teri aankhein kr deti h♾️
+52.ek aadat thi jo chuth gayi,ek dil tha ja toot gaya,ek khwaab tha jo kabhi pura na hua,ek safar tha jo adhoora reh gaya,ek khwaish jo bikhar gayi ' ki kamosh sa kar diya hai tune mere dil ko ab aawaz bhi aasuo se nikalti hai ,aur tabah bhi teri yadein krti hai,aashayein bhi mera dil jagata hai aur deewana teri purani batein kr deti h ab kitna tadpoge tum bhi jaanam kambakt ye fana teri aankhein kr deti h♾️
 
-Jo kabhi har paristhithi me mere Saath tha, hum kabhi na durr honge ye atoot vishwaas tha, jane kya hua usse jo durr chala gaya mujhse ,pyaar dosti ki gaath todta chala gaya mujhse ,ek ladka tha jo bot khass tha mere dil ke bot pass tha ,ab sambhala nhi jata ye haal mera, kr diya hai dil behaal mera,jane kya ho gaya tujhe kaha kho gaye ho tum iss duniya me ,ek baar pass aa jao mere pyaar se gale laga lo na ,mujko vapas mujhi se mila lo na ek baar vapas se aa jao na mujhe phir se hasa do na ,pyaar se nazre mila do na ,ek baar vapas aa jao na🫠🥺
+53.Jo kabhi har paristhithi me mere Saath tha, hum kabhi na durr honge ye atoot vishwaas tha, jane kya hua usse jo durr chala gaya mujhse ,pyaar dosti ki gaath todta chala gaya mujhse ,ek ladka tha jo bot khass tha mere dil ke bot pass tha ,ab sambhala nhi jata ye haal mera, kr diya hai dil behaal mera,jane kya ho gaya tujhe kaha kho gaye ho tum iss duniya me ,ek baar pass aa jao mere pyaar se gale laga lo na ,mujko vapas mujhi se mila lo na ek baar vapas se aa jao na mujhe phir se hasa do na ,pyaar se nazre mila do na ,ek baar vapas aa jao na🫠🥺
